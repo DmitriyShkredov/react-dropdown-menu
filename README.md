@@ -4,7 +4,7 @@
 
 #### `Телеграм:` [@tipichnyj_web_razrabotchik](https://t.me/tipichnyj_web_razrabotchik/36)
 
-#### `Видео:` [YouTube]() | [VK Видео]() | [Дзен]() | [RuTube]()
+#### `Видео:` [YouTube](https://youtu.be/YqfoOEtA5NU) | [VK Видео](https://vk.com/video-222570561_456239022) | [Дзен](https://m.dzen.ru/video/watch/64bfee41bde89b34602f1b21) | [RuTube](https://rutube.ru/video/72006ddd23d84a3a7dbbc54c4e496630/)
 
 ---
 
